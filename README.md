@@ -13,7 +13,7 @@ ${\textsf{\color{#F79BCF} 𝒲hy}}$ ${\textsf{\color{#D585C8} my}}$ ${\textsf{\c
     </tr>
   </table>
 
-<img src="https://files.catbox.moe/7l4yd5.gif" width="20"> ${\textsf{\color{#FDEEF8}𓎢𓎟}}$ ${\textsf{\color{#FDEEF8} ࣪}}$ ${\textsf{\color{#FDEEF8} ⑅}}$ [prns](https://pronouns.cc/@pareo2) ${\textsf{\color{#FDEEF8}⁺}}$ [ata](https://welcome.atabook.org/)${\textsf{\color{#FDEEF8} ༝}}$ [strawpage](https://conexion.straw.page/) ${\textsf{\color{#FDEEF8}⭑}}$ ${\textsf{\color{#FDEEF8}؛ଓ}}$
+<img src="https://files.catbox.moe/7l4yd5.gif" width="20"> ${\textsf{\color{#FDEEF8}𓎢𓎟}}$ ${\textsf{\color{#FDEEF8} ࣪}}$ ${\textsf{\color{#FDEEF8} ⑅}}$ [prns](https://pronouns.cc/@pareo2) ${\textsf{\color{#FDEEF8}⁺}}$ [ata](https://welcome.atabook.org/)${\textsf{\color{#FDEEF8} ༝}}$ [strawpage](https://pareo2.straw.page/) ${\textsf{\color{#FDEEF8}⭑}}$ ${\textsf{\color{#FDEEF8}؛ଓ}}$
 <img src="https://komarev.com/ghpvc/?username=2pareo&style=flat-square&color=A274B8&label=moe+ᜊpareo" alt="profile view counter" width="100" align="center">
 
 
