@@ -1,16 +1,32 @@
-## Hi there 👋
+<img src="https://files.catbox.moe/5dbdkh.png" align=left width="350" align="left"> 
 
-<!--
-**2Pareo/2Pareo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<img src="https://files.catbox.moe/pa2k7y.png" width="300" align="left">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br>  
+  <table>
+    <tr>
+      <td>
+     <img src="https://files.catbox.moe/t0e8kq.png" width="20"> ${\textsf{\color{#5E589E} 𝒜nd}}$ ${\textsf{\color{#A274B8} i}}$ ${\textsf{\color{#C07EC1} really}}$ ${\textsf{\color{#D585C8} couldnt}}$ ${\textsf{\color{#D585C8} say}}$ ${\textsf{\color{#5E589E} U⁠ ⁠´⁠꓃⁠ ⁠`⁠ ⁠U}}$ <br>
+${\textsf{\color{#F79BCF} 𝒲hy}}$ ${\textsf{\color{#D585C8} my}}$ ${\textsf{\color{#C07EC1} life}}$ ${\textsf{\color{#A274B8} is}}$ ${\textsf{\color{#5E589E} so}}$ ${\textsf{\color{#A274B8} 𝒫hoto}}$ ${\textsf{\color{#C07EC1}graphic!}}$ ${\textsf{\color{#F79BCF} ♪۪۪}}$<br>
+      </td>
+    </tr>
+  </table>
+
+<img src="https://files.catbox.moe/7l4yd5.gif" width="20"> ${\textsf{\color{#FDEEF8}𓎢𓎟}}$ ${\textsf{\color{#FDEEF8} ࣪}}$ ${\textsf{\color{#FDEEF8} ⑅}}$ [prns](https://rentry.co/dependenceduo) ${\textsf{\color{#FDEEF8}⁺}}$ [ata](https://dol9hins.atabook.org/)${\textsf{\color{#FDEEF8} ༝}}$ [strawpage](https://conexion.straw.page/) ${\textsf{\color{#FDEEF8}⭑}}$ ${\textsf{\color{#FDEEF8}؛ଓ}}$
+<img src="https://komarev.com/ghpvc/?username=100bottlesofglue&style=flat-square&color=A274B8&label=george+jr" alt="profile view counter" width="100" align="center">
+
+
+ <details>
+  <summary> ${\textsf{\color{#A274B8}  ♡⃕　﹑}}$ ${\textsf{\color{#FDEEF8} signㅤmyㅤata book 4 a kiss!}}$ ${\textsf{\color{#5E589E} ₊ ݁. • }}$ <img src="https://files.catbox.moe/31q85o.png" width="20"> </summary><br>
+   im the biggest pareo bandori kin. so6(w7)39 interact with me I don't bite :) <br></details>
+
+   
+<img src="https://files.catbox.moe/vjbve9.png" width="300" align="left">
+
+
+
+
+<br> 
+
+[cr](https://github.com/100bottlesofglue)
